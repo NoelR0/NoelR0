@@ -1,4 +1,4 @@
-Psalms 111:2-3 NKJV 
+**Psalms 111:2-3** NKJV 
 [2] The works of the Lord are great, Studied by all who have pleasure in them. 
 [3] His work is honorable and glorious, And His righteousness endures forever.
 
